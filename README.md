@@ -20,3 +20,5 @@ Estive ao longo de pouco mais de 2 anos como Desenvolvedora de Sistema e Gestora
 Voltando ao setor público, agora no âmbito do judiciário, ao longo dos últimos anos, atuo na gestão de dados e da vida funcional dos estagiários.
 
 Como consequência da minha abrangente experiência profissional possuo grande facilidade de adaptação a diferentes ambientes, somada à ótima habilidade de comunicação e forte inteligência emocional. 
+
+Possuo nível de inglês avançado, nível básico em italiano e atualmente estou estudando francês, com nível básico-intermediário.
